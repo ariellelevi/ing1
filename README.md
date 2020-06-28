@@ -3,4 +3,4 @@ My attempt to write courses in ing1
 
 
 
-Hope it can help a few desesperate souls (:
+Hope this can help a few desperate souls (:
